@@ -103,3 +103,9 @@ W0474724
 💞️ I’m looking to collaborate on ... -projects to help improve and develop my skills-
 📫 How to reach me ... -aishaakinyera@gmail.com-
 
+
+👋 Hi, I’m @heinrickturingan
+👀 I’m interested in ... -basketball, movies, working included-
+🌱 I’m currently learning ... -Business Intelligence and Analytics-
+💞️ I’m looking to collaborate on ... -stocks and crypto-
+📫 How to reach me ... -heinrickturingan@yahoo.com-
